@@ -1,3 +1,6 @@
+![](https://cdn.discordapp.com/attachments/834924184223481876/991202446963654727/unknown.png)
+
+
 Hi, thank you for buying my script, I'm very grateful! LOOOOOOL AGAIN
 
 If you need help contact me on discord: okok#3488
